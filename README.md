@@ -11,7 +11,8 @@ How does Tusomeplus! work
 3. You can share your scores with your friends.
 4. Find notes for free.
 
-
+Download
+https://play.google.com/store/apps/details?id=com.tusome.plus
  
 TusomePlus App  is designed using Grade 1 to 8 curriculum in kenya, so you can be sure these topics will help give your child a boost in the classroom. Plus your student  will stay entertained with help voice narration.
 Most of our resources are provided by teachers so that they can be made available for others for FREE.
@@ -84,7 +85,7 @@ Kiswahili pre-primary 2 pp2 Exams and topical questions  with answers
 C.R.E pre-primary 2 pp2 Exams and topical questions  with answers
 Detailed Quiz results & Quiz Review for your best practice
 
-
+https://play.google.com/store/apps/details?id=com.tusome.plus
 If you have any questions or suggestions to improve the app please contact tusomeplus at tusomep@gmail.com
 
  
